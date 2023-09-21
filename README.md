@@ -1,4 +1,4 @@
-*** Bem vindo ao meu perfil 💜
+### Bem vindo ao meu perfil 💜
 
 Meu nome é Gracieli izabel
 
@@ -6,7 +6,7 @@ Meu nome é Gracieli izabel
 -Estou me desenvolvendo na linguagem JavaScript
 -Utilizo esse espaço para minha organização e comparthilamento dos meus projetos desenvolvidos
 
-*** você entrar em contato comigo 📧
+### você entrar em contato comigo 📧
 
 gracieli.izabel@escola.pr.gov.br
 
