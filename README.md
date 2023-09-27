@@ -15,4 +15,6 @@ gracieli.izabel@escola.pr.gov.br
 ![](https://media.tenor.com/k_Z0gMvnPpwAAAAC/gato-cat.gif)https://media.tenor.com/k_Z0gMvnPpwAAAAC/gato-cat.gif)
 
 - Tenho 15 anos
-- Gosto de ler, moro em Rosário do Ivai desde que nasci
+- 02/01/2008 💟
+
+[](https://tenor.com/pt-BR/view/bubududu-panda-gif-21330088)
