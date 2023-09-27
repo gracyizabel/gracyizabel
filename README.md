@@ -17,4 +17,4 @@ gracieli.izabel@escola.pr.gov.br
 - Tenho 15 anos
 - 02/01/2008 💟
 
-  [](https://media.tenor.com/oDXHIoN9fAEAAAAi/bubududu-panda.gif)
+  [(https://media.tenor.com/oDXHIoN9fAEAAAAi/bubududu-panda.gif)
