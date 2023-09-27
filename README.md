@@ -10,6 +10,9 @@ Meu nome é Gracieli izabel
 
 gracieli.izabel@escola.pr.gov.br
 
-j
+
 
 ![](https://media.tenor.com/k_Z0gMvnPpwAAAAC/gato-cat.gif)https://media.tenor.com/k_Z0gMvnPpwAAAAC/gato-cat.gif)
+
+- Tenho 15 anos
+- Gosto de ler, moro em Rosário do Ivai desde que nasci
