@@ -1,6 +1,6 @@
 ### Bem vindo ao meu perfil 💜
 
-Meu nome é Gracieli izabel
+Meu nome é Gracieli da Costa izabel.
 
 - Estou estudando no alura
 - Estou me desenvolvendo na linguagem JavaScript
